@@ -14,4 +14,4 @@
 2. 良好的英语听说读写能力。
 
 投递邮箱：请发送简历同时到下面两个邮箱。
-a-dongxuwang@microsoft.com(Recruiter), joinplatform@microsoft.com(Team hiring mail)
+a-dongxuwang@microsoft.com(Recruiter), liagao@microsoft.com,joinplatform@microsoft.com(Team hiring mail)
